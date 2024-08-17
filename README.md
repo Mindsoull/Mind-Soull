@@ -1,4 +1,4 @@
-[![Untitled302-20240817171440.png](https://i.postimg.cc/DzdYpD4y/Untitled302-20240817171440.png)](https://postimg.cc/McHDv9Yh)
+[![Untitled277-20240817172519.png](https://i.postimg.cc/MpRWHWNP/Untitled277-20240817172519.png)](https://postimg.cc/jDxVkrsP)
 
 Albedo/Ask , heya ponytowners im mostly in the ut area near an empty space when im afk. I like to write about my oc's story allot, u can always ask me about them ill be happy to answer!! ^_^
 
